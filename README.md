@@ -1,0 +1,1 @@
+# ea_swing_xauusd_v3
